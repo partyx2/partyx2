@@ -6,4 +6,4 @@
 
 <p align="center">i luv get a snack at 4 am: snackcore ^w^ (c+h encouraged / -13 dni)</p>
 
-<p align="center"> <a href="https://rentry.org/voiddiner" target="blank">rentry</a> <a href="https://partyperson.atabook.org/" target=blank">ata</a> & <a href="https://twitter.com/violetspike" target="blank">twitter</a> <a href="https://x.com/senverymuch/status/1921841622209142891" target="blank">art creds</a> 𐦂𖨆𐀪𖠋</p>
+<p align="center"> <a href="https://rentry.org/partyperson" target="blank">rentry</a> <a href="https://partyperson.atabook.org/" target=blank">ata</a> & <a href="https://twitter.com/violetspike" target="blank">twitter</a> <a href="https://x.com/senverymuch/status/1921841622209142891" target="blank">art creds</a> 𐦂𖨆𐀪𖠋</p>
