@@ -1,9 +1,8 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=partyx2&label=party%20participants&color=0ea7ed&style=flat" alt="partyx2" /> </p>
+<p align="center"> <img src="https://peristille.carrd.co/assets/images/gallery13/7fa8acac.jpg?v=fc43ffb8" alt="k9 icon"/> <img src="https://komarev.com/ghpvc/?username=partyx2&label=k9%20fans&color=B4EF2E&style=flat" alt="partyx2" /> </p>
 
-<p align="center"> kelsey 16 they/them ⚢ adhdtistic <a href="https://lgbtqia.wiki/wiki/Gendervoid" target="blank">nonbinary</a> futch lesbian
-
-<p align="center"> <img src="https://file.garden/aBNCQSKj5T3zDZ6T/p.png" alt="blackhole and four" /> </p>
-
-<p align="center">i luv get a snack at 4 am: snackcore ^w^ (c+h encouraged / -13 dni)</p>
-
-<p align="center"> <a href="https://rentry.org/partyperson" target="blank">rentry</a> <a href="https://partyperson.atabook.org/" target=blank">ata</a> & <a href="https://twitter.com/violetspike" target="blank">twitter</a> <a href="https://x.com/senverymuch/status/1921841622209142891" target="blank">art creds</a> 𐦂𖨆𐀪𖠋</p>
+<p align="center"> <img src="https://pbs.twimg.com/media/G8n8NGlbMAAAlTE?format=jpg&name=large" alt="spokeishere" /> </p>
+<p align="center"> kelsey ⚢ they/them 16 <a href="https://lgbtqia.wiki/wiki/Gendervoid" target="blank">nonbinary</a> futch lesbian</p>
+<p align="center"> i don't want to make a separate rentry for ponytown because i don't go here as often anymore. . . my interests include art, ocs, roblox, minecraft, ena: dbbq and others. for specifics, i like gasa4/sc, die of death, and dive !!! roblox-wise and i like mcsm, mcyters like parrotx2, wifies, and wato1876 plus keep up with unstable universe, and whitepine minecraft-wise.</p>
+<p align="center"> please don't interact with me if your main interest is forsaken, you call robots in general “clankers”, treat female characters especially poor and weird, you hate my main games, fit the general dni criteria, or you're under thirteen. otherwise, do whatever but don't be a weirdo. c+h + whispers are also okay and encouraged since im offtab ninety percent of the time. you can find me sitting around the roblox / mc area.
+<p align="center"> "kelsey who the hell is that little guy named k9 and why are we their fans" that little guy is my oc k9. and i love my ocs. talk to me about ocs please. #theselfglazeisinsane #youwillgetsickofme
+<p align="center"> <a href="https://partyperson.atabook.org/" target=blank">ata</a> & <a href="https://twitter.com/thornspierce" target="blank">twitter</a> 𐦂𖨆𐀪𖠋</p>
